@@ -1,4 +1,4 @@
-# Encoded ByAnup
+# Encoded By Anup
 # Fb Link: https://www.facebook.com/anupsantra123
 # Fb Group Link: https://facebook.com/groups/300845935794614/
 # https://github.com/Anup-santra
